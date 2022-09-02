@@ -14,12 +14,12 @@ Three truths and a lie:🤫<br/>1)  I have been a backhoe operator<br/>
 4)	I have pets named ‘PDF’ and ‘Dirty Bacon’
 
 When I am not in the "code cave" I try my best to Dad so hard 🤘,<br/> 
-stack correctly in a friendly game of ultimate 🥏, and go for<br/> 
-long reads 📚 on the beach.
+stack correctly in a friendly game of ultimate, and go for<br/> 
+long reads on the beach.
 
 I have recently been trying to turn my thumb greener, keep our family’s<br/> 
 host of pets (🐈🐕🐓🐠🐝) alive, and perfect my<br/>
-“Ambient-Electro-Pirate-Metal” 🎵 playlist.
+“Ambient-Electro-Pirate-Metal” playlist.
 
 If you’re still reading and want to know the whole truth,<br/> 
 and nothing but the truth… [let’s connect!](https://www.mabbason.com/)
